@@ -7,6 +7,6 @@ Angelica Jazmin Adriano
 
 Jo Simon Ambata
 
-Ethan Moncayo
-
 Dan Nicole Jacinto
+
+Ethan Moncayo
